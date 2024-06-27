@@ -4,7 +4,7 @@
 💞️ I’m looking to collaborate on open-source projects and web applications.
 📫 How to reach me:
       Mobile: 7294009347
-      Email: riteshGupta.shyamagro@gmail.com
+      Email: riteshgupta.shyamagro@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
